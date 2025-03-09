@@ -1,0 +1,11 @@
+# The Illusion of Experience as a Measure of Skill
+
+Experience is often mistaken for skill, with many assuming that the more time someone spends doing something, the better they become at it. However, true experience is not just about time spent but about continuous improvement—whether conscious or unconscious.
+
+Some individuals believe they are highly skilled simply because they have been engaged in a task for a long time. However, if they are not actively seeking to improve, their experience becomes stagnant. For example, a mechanic who has been fixing cars for twenty years may not necessarily be better than one who has been working for only five years. If the veteran mechanic has relied on the same outdated techniques without adapting to new technologies, their experience has not contributed to meaningful growth. Meanwhile, a newer mechanic who actively learns and adapts could easily surpass them in skill.
+
+The problem is compounded when people use their experience to validate their own expertise. Someone may say, "I've been doing this for decades," as if that alone proves their proficiency. But if their work remains unchanged and unchallenged over time, their years of experience are not a reliable indicator of skill. A chef who has been cooking the same recipes for years without refining techniques or experimenting with new ingredients may not be as skilled as a chef with fewer years but a drive for improvement.
+
+This issue becomes even more concerning because experience is often used as a primary way to judge someone's abilities. Employers, clients, and even peers frequently assume that more experience directly correlates with higher skill. While experience can provide a general idea of someone's competence, it is not a guarantee. Someone with 20+ years in a field may be highly competent, or they may have simply been repeating the same tasks without real growth.
+
+Real experience should be measured by the effort put into growth. Even small, unconscious learning moments count as experience, but when no improvement occurs—consciously or otherwise—time spent becomes meaningless. Thus, skill is not a product of time alone but of the mindset and effort put into development. While experience can serve as a rough indicator, it should never be the sole factor in determining someone’s expertise.
